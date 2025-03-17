@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+https://discord.gg/y6S25VM6TA
 <!--
 
 **Here are some ideas to get you started:**
